@@ -1,0 +1,2 @@
+# wd_0308_ej_cambio_propiedades
+WD_0308_Ej_Cambio_propiedades Artesvisuales
